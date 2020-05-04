@@ -1,9 +1,9 @@
 1.The prototype is shared on "https://98gz99.axshare.com"
 2. Link to the Original Website: https://kappa-usa.com/
-
-
-
 3. Tasks list with all instructions:
+
+
+
 a) Task 1:
 Aim of the user is to search for the Authentic Costium Tie Dye T-Shirt -Green Water
 White Tie Dye which costs around $60.0. The user must shop for the medium sized tshirt.
